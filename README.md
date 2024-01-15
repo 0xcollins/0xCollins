@@ -12,7 +12,7 @@ I'm Akpaka Collins Chidindu, a passionate product manager with a knack for codin
 
 - 💬 Ask me about the intersection of product management, coding, and stock market strategies.
 
-- 📫 Connect with me on linkedin.com/in/akpakacollins/ for intriguing conversations.
+- 📫 Connect with me on [LinkedIn](https://www.linkedin.com/in/akpakacollins/) for intriguing conversations.
 
 - 😄 Pronouns: He/Him
 
