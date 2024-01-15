@@ -16,6 +16,6 @@ I'm Akpaka Collins Chidindu, a passionate product manager with a knack for codin
 
 - 😄 Pronouns: He/Him
 
-- ⚡ Fun fact: My morning ritual involves brewing the perfect cup of coffee while listening to a tech podcast to get his brain in "problem-solving mode. 🚀
+- ⚡ Fun fact: My morning ritual involves brewing the perfect cup of coffee while listening to a tech podcast to get my brain in "problem-solving mode. 🚀
 
 Looking forward to connecting with like-minded individuals and making a positive impact in the tech universe. Let's create some magic together! ✨
